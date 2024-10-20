@@ -1,2 +1,2 @@
-# Zero Point DAO
+# BoilerHAUS DAO
 
